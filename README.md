@@ -1,2 +1,2 @@
 # reinondgesmundo.github.io
-Professional Virtual Assistant portfolio showcasing my skills in data entry, administrative support, email management, Microsoft Office, and AI-assisted tasks.
+Experienced professional transitioning into remote work, bringing a background in data entry, administrative support, customer service, inventory/requisition management, documentation, and operations.
